@@ -1,0 +1,1 @@
+he creado el archivo de texto para el ejercicio 1 práctico1
